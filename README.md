@@ -6,7 +6,7 @@
 
 ### 📬 Benimle İletişime Geçin:
 
-- 💼 [LinkedIn] (www.linkedin.com/in/şuheda-nur-ekmen)  
-- 📧 suhedaekmenn@gmail.com
+- 💼 LinkedIn: www.linkedin.com/in/şuheda-nur-ekmen
+- 📧 Mail: suhedaekmenn@gmail.com
 
 
